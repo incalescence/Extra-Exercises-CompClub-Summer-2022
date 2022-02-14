@@ -1,5 +1,5 @@
 # CSESoc CompClub Summer School 2022
-[January 2022]
+[Jan 2022]
 <br>
 I was so fortunate to be a volunteer mentor at CSESoc CompClub's flagship Summer School. 
 Throughout the week, I a led a group of eager high school students in the following workshops:
